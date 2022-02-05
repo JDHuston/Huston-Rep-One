@@ -1,4 +1,4 @@
-- 👋 Hi, I’m JDHuston
+- 👋 Hi, I’m Joey Huston
 - 👀 I’m interested in NFT and CRYPTO
 - 🌱 I’m currently learning about NFT and CRYPTO
 - 💞️ I’m looking to collaborate on NFTs
